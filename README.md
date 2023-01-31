@@ -1,0 +1,1 @@
+# Geomatika_smkn2_pku.com
